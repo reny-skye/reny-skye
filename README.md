@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reny-skye
-- 💞️ I love cakey & CoD:M
+- 💞️ I love eating cakey & playing CoD:M
 - 😄 Pronouns: she/her
 
 <!---
